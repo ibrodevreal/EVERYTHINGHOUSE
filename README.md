@@ -1,2 +1,2 @@
 # EVERYTHINGHOUSE
-landingpage@everythinghouse.com
+ibrahimidrisibrahim4848@gmail.com
